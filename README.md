@@ -28,5 +28,6 @@ I'm currently looking for **remote frontend roles** and **freelance projects**, 
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/meysamfarzalian)
 - 📫 Email: meysam.farzalian@gmail.com
+- 💬 Telegram: [Telegram](https://t.me/meysamfarzalian)
 
 Thanks for stopping by! ⭐
